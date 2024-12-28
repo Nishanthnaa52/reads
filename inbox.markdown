@@ -1,6 +1,10 @@
 # Inbox
 
-> Books other people suggested I should read.
+## Comics/Casual Reads
+
+ 🌗🌝 [Who moved my cheese? DR Spencer johnson](https://amzn.in/d/eyoMZG5)
+
+ -This story is enhance your lifestyle and change. Did i am only complete half of the book but that changed my pov of a problem's.
 
 ## Web Design
 
